@@ -1,1 +1,1 @@
-# wild-australia
+My name is Jordan Turner, and I am a mobile game developer. My goal is to create captivating gaming experiences for players. Starting with small experiments on PC, I quickly transitioned to the mobile platform. My goal has always been simple – to combine engaging gameplay with excellent visuals and immersive storytelling. What truly inspires me the most is the positive feedback from a player who enjoys my game. These reviews serve as a stimulus for me to improve my skills and create new and exciting games that bring joy to players.
